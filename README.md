@@ -1,4 +1,4 @@
-# Blessed Design Works
+# BlessedDesignWorks
 
 👋 Hi, I'm @blesseddesignworks, the creator behind the Etsy shop BlessedDesignWorks.
 
