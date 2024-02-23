@@ -68,6 +68,6 @@ https://www.pinterest.de/BlessedDesignWorks/
 - [Etsy Shop](https://blesseddesignworks.etsy.com)
 - [Instagram](https://www.instagram.com/blesseddesignworks/)
 - [Facebook](https://www.facebook.com/blesseddesignworks)
--[Pinterest](https://www.pinterest.de/BlessedDesignWorks/)
+- [Pinterest](https://www.pinterest.de/BlessedDesignWorks/)
 
 
