@@ -62,12 +62,12 @@ Thank you for supporting our small business and joining us on this journey of fa
 - Collection of digital planner inserts for organizing your schedule and tasks
 - Includes monthly, weekly, and daily layouts with customizable sections
 - Compatible with popular digital planning apps and devices
-
+https://www.pinterest.de/BlessedDesignWorks/
 ## Connect with Us
 
 - [Etsy Shop](https://blesseddesignworks.etsy.com)
 - [Instagram](https://www.instagram.com/blesseddesignworks/)
 - [Facebook](https://www.facebook.com/blesseddesignworks)
-
+-[Pinterest](https://www.pinterest.de/BlessedDesignWorks/)
 
 
