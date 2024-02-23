@@ -1,6 +1,6 @@
 # Blessed Design Works
 
-👋 Hi, I'm @blesseddesignworks, the creator behind the Etsy shop Blessed Design Works.
+👋 Hi, I'm @blesseddesignworks, the creator behind the Etsy shop BlessedDesignWorks.
 
 👀 My passion is to create unique and inspiring designs that live and love to share faith and spirituality.
 
