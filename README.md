@@ -16,9 +16,9 @@
 
 ---
 
-## About Blessed Design Works
+## About BlessedDesignWorks
 
-Blessed Design Works is an Etsy shop dedicated to offering a variety of high-quality, faith-inspired products. 
+BlessedDesignWorks is an Etsy shop dedicated to offering a variety of high-quality, faith-inspired products. 
 From Christian apparel and accessories to home decor and digital designs, each item is carefully crafted to inspire and uplift. 
 
 Our mission is to spread positivity and encouragement through our creative work, making a meaningful impact in the lives of our customers. 
